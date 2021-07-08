@@ -1,1 +1,0 @@
-# mimang.github.io
